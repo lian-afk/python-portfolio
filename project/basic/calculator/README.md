@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="200" src="https://pngimg.com/d/calculator_PNG102234.png"  />
+<img align="right" height="200" src="https://www.freeiconspng.com/thumbs/calculator-icon/calculator-icon-4.png"  />
 
 ###
 
